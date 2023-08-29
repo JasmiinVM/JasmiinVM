@@ -1,7 +1,5 @@
 - 👋 Hi, Soy Jasmin Villa Mera
 - 👀 Actualemente estoy  interesada en Airbag (Es un banda de rock xd)
-- 🌱 Estoy aprendindo : Desarrollo web y Desarrollo de escritorio (Nivel pollito)
-- 💞️ Me gustaría participar en creaciones de Páginas web
 - 📫 Contactarme por el siguiente correo : jasminvmusat@gmail.com
 
 <!---
