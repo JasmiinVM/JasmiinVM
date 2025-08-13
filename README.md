@@ -1,5 +1,4 @@
 - 👋 Hi, Soy Jasmin Villa Mera
-- 👀 Actualemente estoy  interesada en Airbag (Es un banda de rock xd)
 - 📫 Contactarme por el siguiente correo : jasminvmusat@gmail.com
 
 <!---
